@@ -7,7 +7,7 @@
 ♡ . okay so !! read the next 3 links x3 !!!!!1!
 </p>
 
- ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀https://rookpauze.straw.page ⠀
+ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀![](https://i.imgur.com/KFtLDqh.gif) ⠀https://rookpauze.straw.page ⠀
 ![](https://i.imgur.com/DYTnHXl.gif) ⠀https://rentry.co/pwartyhouse ⠀![](https://i.imgur.com/RAwTdUw.gif)
 
 <p align="center">
