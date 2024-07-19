@@ -9,7 +9,7 @@
 
 ![](https://i.imgur.com/KFtLDqh.gif) ⠀https://rookpauze.straw.page ⠀
 ![](https://i.imgur.com/DYTnHXl.gif) ⠀https://rentry.co/pwartyhouse ⠀![](https://i.imgur.com/RAwTdUw.gif)
-. ▫⠀https://rentry.co/joostkleein ⠀ https://retrospring.net/@joostklein ⠀▫ .
+https://rentry.co/joostkleein ⠀ ![](https://i.imgur.com/hoZDZo7.gif)  . ▫⠀https://retrospring.net/@joostklein ⠀▫ .
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ![](https://i.imgur.com/Mlj2kWh.gif) . . ◜ last one **isnt** neces*s*ary if u read the first one **!***!*
