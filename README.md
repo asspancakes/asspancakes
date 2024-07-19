@@ -12,5 +12,5 @@
 https://rentry.co/joostkleein ⠀ ![](https://i.imgur.com/hoZDZo7.gif)  . ▫⠀https://retrospring.net/@joostklein ⠀▫ .
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-![](https://i.imgur.com/Mlj2kWh.gif) . . ◜ last one **isnt** neces*s*ary if u read the first one **!***!*
+![](https://i.imgur.com/Mlj2kWh.gif) . . ◜ rentry **isnt** neces*s*ary if u read strawpage **!***!*
 ![](https://i.imgur.com/6fAc82C.png)
