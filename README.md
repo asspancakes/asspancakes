@@ -4,7 +4,7 @@
 𝗛𝗔𝗟𝗟𝗢 !! im joost klein 100% real  !! trust no fake frfr no cap >_<
 </p>
 <p align="center">
-♡ . okay so !! read the next 3 links + sign guestbook x3 !!!!!1!
+♡ . okay so !! read the next 3 links + sign atabook x3 !!!!!1!
 </p>
 
 ![](https://i.imgur.com/KFtLDqh.gif) ⠀https://hyperjoost.straw.page ⠀
