@@ -7,7 +7,7 @@
 ♡ . okay so !! read the next 3 links + sign atabook x3 !!!!!1!
 </p>
 
-![](https://i.imgur.com/KFtLDqh.gif) ⠀https://hyperjoost.straw.page ⠀
+![](https://i.imgur.com/KFtLDqh.gif) ⠀https://joostistic.straw.page ⠀
 ![](https://i.imgur.com/DYTnHXl.gif) ⠀https://rentry.co/-sk8board ⠀![](https://i.imgur.com/RAwTdUw.gif)
 https://rentry.co/-joost ⠀ ![](https://i.imgur.com/hoZDZo7.gif)  . ▫⠀https://joostklein.atabook.org/ ⠀▫ .
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
