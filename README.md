@@ -8,8 +8,11 @@
 </p>
 
 ![](https://i.imgur.com/KFtLDqh.gif) ⠀https://joostistic.straw.page ⠀
+ 
  ⠀![](https://i.imgur.com/RAwTdUw.gif)
-https://rentry.co/-joost ⠀ ![](https://i.imgur.com/hoZDZo7.gif) https://joostklein.atabook.org/  ![](https://i.imgur.com/DYTnHXl.gif) 
+https://rentry.co/-joost ![](https://i.imgur.com/hoZDZo7.gif) 
+
+https://joostklein.atabook.org/  ![](https://i.imgur.com/DYTnHXl.gif) 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ![](https://i.imgur.com/Mlj2kWh.gif) . . ◜ rentry **isnt** neces*s*ary if u read **straw***page* **!***!*
