@@ -1,4 +1,8 @@
 ![](https://i.imgur.com/ptR5Gq3.png)
+<p align="center">
+  art belongs to slimsnipes/heavylovertf2
+</p>
+
 ![](https://i.imgur.com/smA0mfC.png)
 <p align="center">
 hi trhis is scout from tf2 real no cap frfr trust me im the real scout
