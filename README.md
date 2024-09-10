@@ -14,7 +14,7 @@ read the next 2 links + sign atabook ^_^
 <p align="center">
 https://joostistic.straw.page ⠀
 https://rentry.co/-joost ⠀
-https://joostklein.atabook.org/
+https://silly.atabook.org/
 </p>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
