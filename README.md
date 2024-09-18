@@ -3,7 +3,7 @@
   art belongs to slimsnipes/heavylovertf2
 </p>
 
-![](https://i.imgur.com/smA0mfC.png)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://i.imgur.com/smA0mfC.png)
 <p align="center">
 hi trhis is scout from tf2 real no cap frfr trust me im the real scout
 </p>
@@ -13,7 +13,7 @@ read the next 2 links + sign atabook ^_^
 
 <p align="center">
 https://joostistic.straw.page ⠀
-https://rentry.co/-joost ⠀
+https://rentry.co/tf22⠀
 https://silly.atabook.org/
 </p>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
