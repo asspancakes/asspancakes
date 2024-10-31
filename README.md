@@ -12,7 +12,7 @@ read the next 2 links + sign atabook ^_^
 </p>
 
 <p align="center">
-https://joostistic.straw.page ⠀
+https://scoutsbonk.straw.page
 https://rentry.co/tf22 ⠀
 https://silly.atabook.org/
 </p>
