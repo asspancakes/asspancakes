@@ -13,7 +13,7 @@ read the next 2 links + sign atabook ^_^
 
 <p align="center">
 https://scoutsbonk.straw.page ⠀
-https://rentry.co/tf22  ⠀
+https://rentry.co/cachorritos ⠀
 https://silly.atabook.org/
 </p>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
