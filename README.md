@@ -12,9 +12,9 @@ read the next 2 links + sign atabook ^_^
 </p>
 
 <p align="center">
-https://scoutsbonk.straw.page ⠀
+https://asspancakes.straw.page ⠀
 https://rentry.co/cachorritos ⠀
-https://silly.atabook.org/
+https://scout.atabook.org/
 </p>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
