@@ -1,9 +1,9 @@
-![](https://i.imgur.com/ptR5Gq3.png)
+![](https://i.postimg.cc/Xv6Z3Lvq/117-sin-t-tulo-20241201180026.png)
 <p align="center">
-  art belongs to slimsnipes/heavylovertf2
+  art belongs to WOSHIACHUN
 </p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://i.imgur.com/smA0mfC.png)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://i.postimg.cc/bJ820gXW/114-sin-t-tulo-20241201175744.png)
 <p align="center">
 hi trhis is scout from tf2 real no cap frfr trust me im the real scout
 </p>
@@ -18,4 +18,4 @@ https://scout.atabook.org/
 </p>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-![](https://i.imgur.com/q23AujR.png)
+![](https://i.postimg.cc/wvTjTGYq/117-sin-t-tulo-20241201180031.png)
