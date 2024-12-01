@@ -3,7 +3,7 @@
   art belongs to WOSHIACHUN
 </p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://i.postimg.cc/bJ820gXW/114-sin-t-tulo-20241201175744.png)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://i.postimg.cc/W4p7Tszh/114-sin-t-tulo-20241201180409.png)
 <p align="center">
 hi trhis is scout from tf2 real no cap frfr trust me im the real scout
 </p>
@@ -14,7 +14,7 @@ read the next 2 links + sign atabook ^_^
 <p align="center">
 https://asspancakes.straw.page ⠀
 https://rentry.co/cachorritos ⠀
-https://scout.atabook.org/
+https://scout.atabook.or
 </p>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
