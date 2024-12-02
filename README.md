@@ -14,7 +14,7 @@ read the next 2 links + sign atabook ^_^
 <p align="center">
 https://asspancakes.straw.page ⠀
 https://rentry.co/cachorritos ⠀
-https://scout.atabook.or
+https://scout.atabook.org
 </p>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
