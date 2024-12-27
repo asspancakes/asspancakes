@@ -4,6 +4,4 @@
 
 ![jayce](https://i.postimg.cc/cJ0kwtH7/wwwwwwwww.jpg)
 
-![??](https://i.postimg.cc/fLfhNQPZ/Captura-de-pantalla-2024-10-05-150741.png)
-
 ![que](https://i.postimg.cc/K8CNZkXr/Captura-de-pantalla-2024-11-02-173642.png)
