@@ -2,5 +2,5 @@
 
 ![thanos](https://i.postimg.cc/3x02F56R/111111111.gif)ㅤ ㅤ ㅤ![thagyu](https://i.postimg.cc/vTTjWwhD/ezgif-6-2735469b76.gif)
 
-![jayce](https://i.postimg.cc/cJ0kwtH7/wwwwwwwww.jpg)
+![yaoi lover](https://i.postimg.cc/RCj5cNrB/20250111-175623.jpg)
 
