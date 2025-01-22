@@ -4,3 +4,4 @@
 
 ![yaoi lover](https://i.postimg.cc/RCj5cNrB/20250111-175623.jpg)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31iil6j6sj24whigem6glgndsbvi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=000000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
